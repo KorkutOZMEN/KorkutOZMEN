@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @KorkutOZMEN
+- 📫 How to reach me on Ig: korkutozmen2409
